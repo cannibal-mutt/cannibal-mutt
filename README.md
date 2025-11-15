@@ -1,5 +1,6 @@
                                                    Bee / Mutt
                                                    they'them
+                                                  9teen - 6/4 
                           I have Audhd and a few other things I'm not willing to share fully.
                       I may come off as standoffish, as I'm quiet unless spoken to first normally.
                                             I use tone tags occasinally-
