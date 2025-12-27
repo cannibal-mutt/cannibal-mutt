@@ -1,32 +1,18 @@
-                                                   Bee / Mutt
-                                                   they'them
-                                                  9teen - 6/4 
-                          I have Audhd and a few other things I'm not willing to share fully.
-                      I may come off as standoffish, as I'm quiet unless spoken to first normally.
-                                            I use tone tags occasinally-
+✦Just a funky lil thing - They'Them please
+⟢Audhd, system, dyslexic
+✦9teen - June 4th
+═══════════════════⟢── .✦
+I do not interact with many fandoms, too much drama for most of what i am interested in...
+Please do not cover me! I work hard on my skins and I like to see them.
+I hide freely, and block people I deem problematic. 
+═══════════════════✦── .⟢
 
-            I block and hide freely! Don't get upset, I have my reasons. Though, I do try to be patient with people.
-                Please don't cover me, or copy my skins! I work hard on them and would like to see them!!⚠︎
+Interests ;;
+↳ Hannibal(OG and NBC),Call of Duty, The Stanley Parable, Stardew Valley, Warrior Cats, OC's and some more!
+Feel free to ask me about what I like.
 
-                                  You can find me by the bakery archways the most.
-                        I am often offtab or AFK - Please whisper to me to get my attention!
-
-                                                                 
-                                                  /ᐠ - ˕ -マ ᶻ 𝗓 𐰁 
-
-             Basic DNI criteria, Proshippers, toxic communities/fandoms and active toxic participants.
-                                                      
-                                              Some of my interests! ╰┈➤ 
-        Hannibal (OG and NBC), Call of Duty, The Stanley Parable, Stardew Valley, Arcane, Warrior Cats, and some more!
-
-                                              Some other games I play ╰┈➤
-                        Roblox ; RoBeats, Pressure, Creatures of Sonaria, Warrior Cats Ulimate Edition. 
-                                          Call Of Duty ; Black Ops 6 & MWIII + MWII
-                                    Sims 4, Transformice, Lethal Company, FNaF
-
-                                            Some shows/movies I enjoy ╰┈➤ 
-      San Andreas, The conjuring universe movies, TWD universe, Jurrasic wold/park movies, From, The Pitt, House MD., 
-                            The Good Doctor, TLOU, true crime and murder mysteries, Steven Universe, MLP!
-
-                                            Signed, by yours truly,
-                                                        ~ your personal cannibal
+Some games I play/like ;;
+↳ Roblox ; RoBeats, Pressure, Creatures of Sonaria, Warrior Cats Ulimate Edition, Dandy's World
+↳ Call Of Duty ; Black Ops 6 & MWIII + MWII
+↳ Other ;FNaF, NINAH, Buckshot roulette 
+═══════════════════⟢── .✦
