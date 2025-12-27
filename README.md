@@ -5,6 +5,7 @@
           ═══════════════════✦── .⟢
           I do not interact with many fandoms, too much drama for most of what i am interested in...
           Please do not cover me! I work hard on my skins and I like to see them.
+          Do not copy my skins, that is instant report and block. Ask for inspo.
           I hide freely, and block people I deem problematic. 
           ═══════════════════⟢── .✦
 
