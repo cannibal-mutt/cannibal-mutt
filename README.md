@@ -15,5 +15,6 @@
           Some games I play/like ;;
           ↳ Roblox ; RoBeats, Pressure, Creatures of Sonaria, Warrior Cats Ulimate Edition, Dandy's World
           ↳ Call Of Duty ; Black Ops 6 & MWIII + MWII
-          ↳ Other ;FNaF, NINAH, Buckshot roulette 
+          ↳ Other ; FNaF, NINAH, Buckshot roulette
+           Feel free to ask me about what I like and play.
           ═══════════════════✦── .⟢
