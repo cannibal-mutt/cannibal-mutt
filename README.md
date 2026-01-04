@@ -8,6 +8,8 @@
           Do not copy my skins, that is instant report and block. Ask for inspo.
           I hide freely, and block people I deem problematic. 
           ═══════════════════⟢── .✦
+          Basic DNI , problematic people, breadline sitters, slur slingers, and just shitty human beings in general-
+          ═══════════════════✦── .⟢
 
           Interests ;;
           ↳ Hannibal(OG and NBC),Call of Duty, The Stanley Parable, Stardew Valley, Warrior Cats, OC's and some more!
