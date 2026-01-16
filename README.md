@@ -12,7 +12,7 @@
           ═══════════════════✦── .⟢
 
           Interests ;;
-          ↳ Hannibal(OG and NBC),Call of Duty, The Stanley Parable, Stardew Valley, Warrior Cats, OC's and some more!
+          ↳ The Pitt, Hannibal(OG and NBC), Call of Duty, The Stanley Parable, Stardew Valley, Warrior Cats, OC's and some more!
           Feel free to ask me about what I like.
 
           Some games I play/like ;;
